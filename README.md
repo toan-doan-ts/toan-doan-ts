@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @toan-doan-ts
+- 👀 I’m interested in causality, cognitive science and mathematics.
